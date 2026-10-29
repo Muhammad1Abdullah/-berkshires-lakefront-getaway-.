@@ -30,7 +30,7 @@ A flexible itinerary leaves room for spontaneous discoveries. Rather than schedu
 
 The right place to stay can influence the entire experience. Couples may prefer an intimate setting with scenic views, while solo travelers might prioritize comfort, a welcoming atmosphere, and easy access to local attractions.
 
-For adults seeking a quieter retreat, [Lakehouse Inn](https://YOUR-LAKEHOUSE-URL) in Lee, Massachusetts offers a boutique bed-and-breakfast experience beside Laurel Lake. The property features lake-view rooms, complimentary breakfast, seasonal water activities, and thoughtful hospitality designed to make a visit feel personal.
+For adults seeking a quieter retreat, [Lakehouse Inn](https://www.lakehouseinnlee.com/) in Lee, Massachusetts offers a boutique bed-and-breakfast experience beside Laurel Lake. The property features lake-view rooms, complimentary breakfast, seasonal water activities, and thoughtful hospitality designed to make a visit feel personal.
 
 Its location also provides convenient access to several well-known Berkshires attractions, making it possible to combine relaxing lakeside moments with cultural outings and local dining.
 
